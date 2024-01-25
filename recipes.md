@@ -113,3 +113,17 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Rice Krispies
+Ingredients:
+- 3 tbs of butter
+- 1 1/4 cups of marshmallows
+- 6 cups of Kellogg's Rice Krispies Cereal
+
+Instructions:
+1. In a large a saucepan melt butter over low heat.
+2. Add marshmallows and stir until completely melted.
+3. Remove from heat and add Kellogg's Rice Krispies Cereal. Stir until well coated.
+4. Using buttered spatula or wax paper evenly press mixture into 13 x 9 x 2-inch pan coated with cooking spray.
+5. Cool on wire racks.
+6. Cut into 2-inch squares. 
